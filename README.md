@@ -2,11 +2,7 @@
    . . . . ╰──╮
   <img src="https://i.postimg.cc/vHCqmZdh/98EA8231-2C88-4A24-95BF-28E04841C169.png" width="77" height="77">
   ╭──╯ . . . . 
-</p> <br>
-
-<p align="center">─ ཐི ⋅ ♰ ⋅ ཋྀ ─</p>
-
-
+</p> 
 
 <p align="center">
   
