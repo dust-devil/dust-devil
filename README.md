@@ -9,7 +9,7 @@
 </p>
 <p align="center">. Please call me Witzsha/Sha .</p>
 <p align="center">18 | she/her </p>
-<p align="center">w2i only on 18+. Check main for more info.
+<p align="center"> Check main for more info.
 <p align="center">𓆩♱𓆪</p>
 
 <p align="center">
